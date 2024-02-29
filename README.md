@@ -6,7 +6,7 @@ I believe that these assignments reflect my commitment to understanding and appl
 
 Thank you for your unwavering support and encouragement. I am eager to continue learning and evolving under your mentorship.
 
-Warm regards
+Regards
 
 Chandra Prakash Singh
 
